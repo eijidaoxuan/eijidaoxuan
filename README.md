@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @eijidaoxuan
-- 👀 I’m interested in game creators
+- 👀 I’m interested in game creators, web developer, anything
 - 🌱 I’m currently learning coding, althought I dont know the relation of it
 - 💞️ I’m looking for mentor 
 - 📫 How to reach me? just massage me or whatever, my pleasure to get your massage 
